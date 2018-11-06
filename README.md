@@ -1,5 +1,5 @@
 # Hello-Tori
 Livin' Like Larry 
 
-Hellow!
+Hello!
 I am really craving Qdoba at the moment. 
